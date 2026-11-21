@@ -1,1 +1,2 @@
 Note: This project is not endorsed or approved by Chuck E. Cheese Entertainment, all rights reserved and credits go to them.Note: This project is not endorsed or approved by Chuck E. Cheese Entertainment, all rights reserved and credits go to them.
+Welcome to Project Revitalized, a community based project that aims to create, discuss, and archive older generations/eras of Chuck E. Cheese content, in response to the ongoing corporate minimalism and generative AI usage.
